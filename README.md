@@ -7,5 +7,6 @@
 <img width="1472" height="828" alt="Image" src="https://github.com/user-attachments/assets/f4a89aac-9b72-4391-9f70-674fc30a04a3" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾](https://zawesd.strawpage.org/)ㅤ.✦ ݁˖ㅤ[𝖺𝗍𝖺𝖻𝗈𝗈𝗄](https://eueu.atabook.org/)
 <img width="500"  alt="Image" src="https://github.com/user-attachments/assets/d5973c60-831d-438d-8b16-eaedd5ceaf03" />
+
 $\color{grey}{\textsf{𝗋𝗈𝗅𝖺𝗇𝗀𝖾𝗅 𝗆𝗒 𝗉𝖺𝗋𝖾𝗇𝗍𝗌}}$
 
